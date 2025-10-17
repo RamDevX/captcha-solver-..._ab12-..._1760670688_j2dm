@@ -1,1 +1,0 @@
-# captcha-solver-..._ab12-..._1760670688_j2dm
